@@ -1,16 +1,25 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**Solyrvv/Solyrvv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <table>
+    <tr>
+      <td>
+        <img src="http://i.ibb.co/ymrF81PS/MW-x-Mikeyy-1.png" alt="MW x Mikeyy" width="2000">
+      </td>
+      <td>
+       • ˙
+        <p>
+          " 𝗧𝗵𝗲𝘆 𝗼𝗻𝗹𝘆 𝗰𝗮𝗿𝗲 𝗳𝗼𝗿 𝘁𝗵𝗲𝗶𝗿 𝘄𝗲𝗮𝗹𝘁𝗵, 𝗻𝗼𝘁 𝘁𝗵𝗲 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹𝗶𝘁𝘆. - 𝗦𝗼𝗹𝘆𝗿𝗮 "
+✦
+        </p>
+      </td>
+    </tr>
+  </table>
 
-Here are some ideas to get you started:
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> Also I made this drawing with @xMikeyy !! ❤
+
+<h1 align="center">Thanku for 100+ followers!! 
+</h1>
+<p align="center">Help me get to 200+ followers.. 
+
