@@ -2,9 +2,8 @@
 
   <table>
     <tr>
-      <td>
  <p align="center">
-  <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="20000"/>
+  <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="2000"/>
 </p>
       </td>
       <td>
