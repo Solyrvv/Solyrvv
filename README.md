@@ -8,7 +8,7 @@
       <td>
        • ˙
         <p>
-          " 𝗜 𝘀𝘁𝗶𝗹𝗹 𝗹𝗼𝘃𝗲 𝘆𝗼𝘂 𝗲𝘃𝗲𝗻 𝗶𝗳 𝘆𝗼𝘂 𝗵𝘂𝗿𝘁 𝗺𝗲 𝗺𝘂𝗹𝘁𝗶𝗽𝗹𝗲 𝘁𝗶𝗺𝗲𝘀 . - 𝗦𝗼𝗹𝘆𝗿𝗮 "
+          " 𝗛𝘂𝗿𝘁 𝗺𝗲, 𝗞𝗶𝗹𝗹 𝗺𝗲, 𝗕𝗿𝗲𝗮𝗸 𝗺𝗲,, 𝗬𝗼𝘂'𝗹𝗹 𝘀𝘁𝗶𝗹𝗹 𝗺𝘆 𝗳𝗮𝘃𝗼𝗿𝗶𝘁𝗲 𝗽𝗲𝗿𝘀𝗼𝗻 . "
 ✦
         </p>
       </td>
@@ -19,7 +19,7 @@
 
 <p align="center"> • Ꮺ 𖤋𖤋𖤋𖤋𖤋𖤋 ˙ 𝑆𝑤𝑒𝑒𝑡 𝐷𝑟𝑒𝑎𝑚𝑠 ꔛ 𖤋𖤋𖤋𖤋𖤋𖤋 ∘ ˙
 
-<h1 align="center">Thanku for 100+ followers!! 
+<h1 align="center">Thanku for 100+ followers!!
 </h1>
 <p align="center">Help me get to 200+ followers.. 
 
