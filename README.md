@@ -1,15 +1,14 @@
-<div align="center">
 
   <table>
     <tr>
- <p align="center">
+<p align="center">
   <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="2000"/>
 </p>
       </td>
       <td>
        • ˙
         <p>
-          " 𝗧𝗵𝗲𝘆 𝗼𝗻𝗹𝘆 𝗰𝗮𝗿𝗲 𝗳𝗼𝗿 𝘁𝗵𝗲𝗶𝗿 𝘄𝗲𝗮𝗹𝘁𝗵, 𝗻𝗼𝘁 𝘁𝗵𝗲 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹𝗶𝘁𝘆. - 𝗦𝗼𝗹𝘆𝗿𝗮 "
+          " 𝗜 𝘀𝘁𝗶𝗹𝗹 𝗹𝗼𝘃𝗲 𝘆𝗼𝘂 𝗲𝘃𝗲𝗻 𝗶𝗳 𝘆𝗼𝘂 𝗵𝘂𝗿𝘁 𝗺𝗲 𝗺𝘂𝗹𝘁𝗶𝗽𝗹𝗲 𝘁𝗶𝗺𝗲𝘀 . - 𝗦𝗼𝗹𝘆𝗿𝗮 "
 ✦
         </p>
       </td>
@@ -18,7 +17,7 @@
 
 </div>
 
-<p align="center"> Also I made this drawing with @xMikeyy !! ❤
+<p align="center"> • Ꮺ 𖤋𖤋𖤋𖤋𖤋𖤋 ˙ 𝑆𝑤𝑒𝑒𝑡 𝐷𝑟𝑒𝑎𝑚𝑠 ꔛ 𖤋𖤋𖤋𖤋𖤋𖤋 ∘ ˙
 
 <h1 align="center">Thanku for 100+ followers!! 
 </h1>
