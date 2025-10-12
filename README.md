@@ -3,7 +3,9 @@
   <table>
     <tr>
       <td>
-        <img src="http://i.ibb.co/ymrF81PS/MW-x-Mikeyy-1.png" alt="MW x Mikeyy" width="2000">
+ <p align="center">
+  <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="20000"/>
+</p>
       </td>
       <td>
        • ˙
