@@ -5,17 +5,16 @@
 <p align="center">
   <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="2000"/>
 </p>
+<p align="center">╭──────༺♡༻──────╮
       </td>
       <td>
-       • ˙
         <p>
           " 𝘐 𝘓𝘰𝘷𝘦𝘥 𝘩𝘦𝘳... 𝘉𝘶𝘵 𝘴𝘩𝘦 𝙐𝙨𝙚𝙙 𝘮𝘦 𝘪𝘯𝘴𝘵𝘦𝘢𝘥 𝘰𝘧 𝘮𝘺 𝘭𝘰𝘷𝘦 𝘧𝘰𝘳 𝙃𝙚𝙧 "
-✦
         </p>
       </td>
     </tr>
   </table>
-
+<p align="center">╰──────༺♡༻──────╯
 </div>
 
 <p align="center"> • Ꮺ 𖤋𖤋𖤋𖤋𖤋𖤋 ˙ 𝑆𝑤𝑒𝑒𝑡 𝐷𝑟𝑒𝑎𝑚𝑠 ꔛ 𖤋𖤋𖤋𖤋𖤋𖤋 ∘ ˙
