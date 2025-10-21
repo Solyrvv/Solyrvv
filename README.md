@@ -9,7 +9,9 @@
       </td>
       <td>
         <p>
+          ꒰
           " 𝘐 𝘓𝘰𝘷𝘦𝘥 𝘩𝘦𝘳... 𝘉𝘶𝘵 𝘴𝘩𝘦 𝙐𝙨𝙚𝙙 𝘮𝘦 𝘪𝘯𝘴𝘵𝘦𝘢𝘥 𝘰𝘧 𝘮𝘺 𝘭𝘰𝘷𝘦 𝘧𝘰𝘳 𝙃𝙚𝙧 "
+          ꒱
         </p>
       </td>
     </tr>
@@ -19,7 +21,7 @@
 
 <p align="center"> • Ꮺ 𖤋𖤋𖤋𖤋𖤋𖤋 ˙ 𝑆𝑤𝑒𝑒𝑡 𝐷𝑟𝑒𝑎𝑚𝑠 ꔛ 𖤋𖤋𖤋𖤋𖤋𖤋 ∘ ˙
 
-<h1 align="center">Thanku for 200+ followers!!
+<h1 align="center">Thanku for 200+ followers!! <3
 </h1>
 <p align="center">Help me get to 300+ followers.. 
 
