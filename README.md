@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=36&duration=4000&pause=1500&color=FFFFFF&center=true&vCenter=true&width=900&lines=I%27ll+break+your+bones%2C;with+all+the+love+I+carry%2C;keep+you+close%2C;and+one+day+we%27ll+get+Married)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=36&duration=4000&pause=1500&color=FFFFFF&center=true&vCenter=true&width=900&lines=H%27i+im+Solyra+!%2C;"+I+Think+of+you+day+and+night+"%2C;Astro+Fan+!%2C;Love+me+with+a%27ll+your+Might)](https://git.io/typing-svg)
 
   <table>
     <tr>
