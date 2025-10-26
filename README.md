@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=36&duration=4000&pause=1500&color=FFFFFF&center=true&vCenter=true&width=900&lines=H%27i+im+Solyra+!%2C;"+I+Think+of+you+day+and+night+"%2C;Astro+Fan+!%2C;Love+me+with+a%27ll+your+Might)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=36&duration=4000&pause=1500&color=FFFFFF&center=true&vCenter=true&width=900&lines=H%27i+im+Solyra+!!+^_^%2C;Do+They+Care+?+..."%2C;I+Wonder+!!+0_0%2C;Love+me+with+a%27ll+your+Might)](https://git.io/typing-svg)
 
   <table>
     <tr>
@@ -9,9 +9,7 @@
       </td>
       <td>
         <p>
-          ꒰
-          " 𝘐 𝘓𝘰𝘷𝘦𝘥 𝘩𝘦𝘳... 𝘉𝘶𝘵 𝘴𝘩𝘦 𝙐𝙨𝙚𝙙 𝘮𝘦 𝘪𝘯𝘴𝘵𝘦𝘢𝘥 𝘰𝘧 𝘮𝘺 𝘭𝘰𝘷𝘦 𝘧𝘰𝘳 𝙃𝙚𝙧 "
-          ꒱
+          ꒰ " 𝘐 𝘓𝘰𝘷𝘦𝘥 𝘩𝘦𝘳... 𝘉𝘶𝘵 𝘴𝘩𝘦 𝙐𝙨𝙚𝙙 𝘮𝘦 𝘪𝘯𝘴𝘵𝘦𝘢𝘥 𝘰𝘧 𝘮𝘺 𝘭𝘰𝘷𝘦 𝘧𝘰𝘳 𝙃𝙚𝙧 " ꒱
         </p>
       </td>
     </tr>
