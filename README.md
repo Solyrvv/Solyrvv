@@ -5,16 +5,8 @@
   <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="2000"/>
 </p>
 <p align="center">╭──────༺♡༻──────╮
-      </td>
-      <td>
-        <p>
-          ꒰ " 🐺 @ ! Hi ! Send me Gimmicks on Sp ! 💤 " ꒱
-        </p>
-      </td>
-    </tr>
-  </table>
+<p align="center">꒰ " 🐺 @ ! Hi ! Send me Gimmicks on Sp ! 💤 " ꒱
 <p align="center">╰──────༺♡༻──────╯
-</div>
 
 <p align="center"> • Ꮺ 𖤋𖤋𖤋𖤋𖤋𖤋 ˙ 𝑆𝑤𝑒𝑒𝑡 𝐷𝑟𝑒𝑎𝑚𝑠 ꔛ 𖤋𖤋𖤋𖤋𖤋𖤋 ∘ ˙
 
