@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+Hi+I'm+Solyra+!+^+^+꒱;꒰+Huzzah+!+꒱;꒰+୨◠୧+꒱;꒰+ꉂ(ˊᗜˋ*)+!+꒱;꒰+Eclipse+my+Beloved+!+꒱)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+Hi+I'm+Solyra+!+^+^+꒱;꒰+"+Awooo+!+"+꒱;꒰+୨◠୧+꒱;꒰+ꉂ(ˊᗜˋ*)+!+꒱;꒰+Eclipse+my+Beloved+!+꒱;꒰+"+Scared+?+"+꒱)](https://git.io/typing-svg)
   <table>
     <tr>
 <p align="center">
@@ -8,7 +8,7 @@
       </td>
       <td>
         <p>
-          ꒰ " 𝘐 𝘓𝘰𝘷𝘦𝘥 𝘩𝘦𝘳... 𝘉𝘶𝘵 𝘴𝘩𝘦 𝙐𝙨𝙚𝙙 𝘮𝘦 𝘪𝘯𝘴𝘵𝘦𝘢𝘥 𝘰𝘧 𝘮𝘺 𝘭𝘰𝘷𝘦 𝘧𝘰𝘳 𝙃𝙚𝙧 " ꒱
+          ꒰ " 🐺 @ ! Hi ! Send me Gimmicks on Sp ! 💤 " ꒱
         </p>
       </td>
     </tr>
