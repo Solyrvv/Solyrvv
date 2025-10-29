@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=Hi+I'm+Solyra+!+^+^;Huzzah+!;"+I+was+used+by+the+person+I+loved.+";"+Nothing+cuts+deeper+than+realizing+";"+the+love+I+gave...+";"+meant+𝗡𝗢𝗧𝗛𝗜𝗡𝗚...+";woah+what+was+that--!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+Hi+I'm+Solyra+!+^+^+꒱;꒰+Huzzah+!+꒱;꒰+୨◠୧+꒱;꒰+ꉂ(ˊᗜˋ*)+!+꒱;꒰+Eclipse+my+Beloved+!+꒱)](https://git.io/typing-svg)
   <table>
     <tr>
 <p align="center">
