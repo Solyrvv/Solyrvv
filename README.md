@@ -5,12 +5,12 @@
   <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="2000"/>
 </p>
 <p align="center">╭──────༺♡༻──────╮
-<p align="center">꒰ " 🌷 @ ! Hi ! I don't mind having cuddles ! 🍬 " ꒱
+<p align="center">꒰ " 🌷 @ ! һі ! іძ᥆ᥒ𝗍 mіᥒძ һᥲ᥎іᥒg ᥴᥙძძᥣᥱs !! 💫 " ꒱
 <p align="center">╰──────༺♡༻──────╯
 
 <p align="center"> ᥲᥕ᥆᥆ !! 
 
 <h1 align="center">Thanku for 200+ followers!! <3
 </h1>
-<p align="center">🌷
+<p align="center">꒰ 🌷 ꒱
 
