@@ -1,9 +1,9 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+Hi+I'm+Solyra+!+^+^+꒱;꒰+"+⍴ᥙrᥙrᥙ+!+"+꒱;꒰+୨◠୧+꒱;꒰+ꉂ(ˊᗜˋ*)+!+꒱;꒰+і᥎ᥲᥣ𝗍іᥣᥣ+my+ᑲᥱᥣ᥆᥎ᥱძ+!+꒱;꒰+"+yᥲһ+!+"+꒱)](https://git.io/typing-svg)
   <table>
     <tr>
-<p align="center">
-  <img src="https://avatars.githubusercontent.com/u/218754534?v=4" alt="RottingSunflower profile picture" width="2000"/>
-</p>
+<div align="center">
+  <img src="https://i.ibb.co/qYBJFVck/Untitled149-20251104175423.png" width="1200" style="image-rendering: pixelated;" alt="Sticker" />
+</div>
 <p align="center">╭──────༺♡༻──────╮
 <p align="center">꒰ " 🦭 @ ! һі ! іძ᥆ᥒ𝗍 mіᥒძ һᥲ᥎іᥒg ᥴᥙძძᥣᥱs !! 🎶 " ꒱
 <p align="center">╰──────༺♡༻──────╯
