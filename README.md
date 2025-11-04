@@ -2,7 +2,7 @@
   <table>
     <tr>
 <div align="center">
-  <img src="https://i.ibb.co/qYBJFVck/Untitled149-20251104175423.png" width="1200" style="image-rendering: pixelated;" alt="Sticker" />
+  <img src="https://i.ibb.co/qYxpXsfq/Untitled113-20251104180745.png" alt="Sticker 2" style="image-rendering: pixelated; display:block;" />
 </div>
 <p align="center">╭──────༺♡༻──────╮
 <p align="center">꒰ " 🦭 @ ! һі ! іძ᥆ᥒ𝗍 mіᥒძ һᥲ᥎іᥒg ᥴᥙძძᥣᥱs !! 🎶 " ꒱
