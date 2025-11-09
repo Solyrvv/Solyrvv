@@ -4,13 +4,5 @@
 <div align="center">
   <img src="https://i.ibb.co/qYxpXsfq/Untitled113-20251104180745.png" alt="Sticker 2" style="image-rendering: pixelated; display:block;" />
 </div>
-<p align="center">╭──────༺♡༻──────╮
-<p align="center">꒰ " 🛸 @ ! һі ! іძ᥆ᥒ𝗍 mіᥒძ һᥲ᥎іᥒg ᥴᥙძძᥣᥱs !! 🎶 " ꒱
-<p align="center">╰──────༺♡༻──────╯
 
-<p align="center"> ꒰ ⍴rᥙrᥙ !! ꒱
-
-<h1 align="center">Thanku for 200+ followers!! <3
-</h1>
-<p align="center">꒰ 🛸 ꒱
 
