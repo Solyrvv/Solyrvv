@@ -2,6 +2,6 @@
   <table>
     <tr>
 <p align="center">
-  <img src="https://i.ibb.co/1fJKPPSB/e460f62ebc5598243f8eb4bd2aebf3d4.jpg" alt="Preview" width="600">
+  <img src="https://i.ibb.co/cXCDx5b6/Untitled113-20251105171035.png" alt="Preview" width="100%">
 </p>
 
