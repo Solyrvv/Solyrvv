@@ -1,4 +1,8 @@
+
+  <p align="center">
+  <img src="https://i.ibb.co/d0R080Yr/Untitled113-20251116114045.png" alt="Untitled113-20251116114045" width="800">
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+Hi+I'm+Solyra+!+^+^+꒱;꒰+"+⍴ᥙrᥙrᥙ+!+"+꒱;꒰+୨◠୧+꒱;꒰+ꉂ(ˊᗜˋ*)+!+꒱;꒰+і᥎ᥲᥣ𝗍іᥣᥣ+my+ᑲᥱᥣ᥆᥎ᥱძ+!+꒱;꒰+"+yᥲһ+!+"+꒱)](https://git.io/typing-svg)
-  <table>
-    <tr>
-<img src="https://i.ibb.co/NggYbBdn/b86ac791bb738b5df071fba04c1cb496.jpg" alt="b86ac791bb738b5df071fba04c1cb496">
+    
+  <img src="https://i.ibb.co/5h8x0MQ6/Untitled113-20251116114141.png" alt="Untitled113-20251116114141" width="800">
+</p>
