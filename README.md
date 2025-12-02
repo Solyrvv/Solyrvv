@@ -4,4 +4,4 @@
   <img src="https://i.ibb.co/dw44JB2L/Untitled113-20251201171420.png" alt="Image" width="800">
 </p>
 
-[DrunkParty](https://github.com/DrunkParty) . [Strawpage](https://awesomestrawpagesolyra.straw.page)
+[DrunkParty](https://github.com/DrunkParty) . [Strawpage](https://awesomesitesolyra.straw.page)
