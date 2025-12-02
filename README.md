@@ -4,4 +4,8 @@
   <img src="https://i.ibb.co/dw44JB2L/Untitled113-20251201171420.png" alt="Image" width="800">
 </p>
 
-[DrunkParty](https://github.com/DrunkParty) . [Strawpage](https://awesomesitesolyra.straw.page)
+<p align="center">
+  <a href="https://github.com/DrunkParty">DrunkParty</a>
+&nbsp;&nbsp;&nbsp;<!-- spacing --> ⌗
+  <a href="https://awesomesitesolyra.straw.page">Strawpage</a>
+</p>
