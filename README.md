@@ -9,5 +9,5 @@
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://awesomesitesolyra.straw.page">꒰Strawpage꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
-  <a href="https://colormytree.me/2025/01KBK30F55AB9PY8KP0HM7R2SB">꒰ColorMyTree꒱</a>
+  <a href="https://colormytree.me/2025/01KBK30F55AB9PY8KP0HM7R2SB">꒰SignMyTree꒱</a>
 </p>
