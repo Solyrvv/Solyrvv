@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFDD7F&center=true&vCenter=true&width=1000&lines=꒰+"+Headshot+"+꒱;꒰+Thank+you+for+the+500++followers+!+꒱;꒰+"+???+"+꒱;꒰+Sports+Hyuna+꒱;꒰+Alien+Stage+Hyuna+꒱;꒰+"+Haha+!+"+꒱)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=40&duration=4000&pause=1600&color=FFDD7F&center=true&vCenter=true&width=1000&lines=꒰+"+Headshot+baby+!+"+꒱;꒰+Thank+you+for+the+500++followers+!+꒱;꒰+Hyuna+Noona+꒱;꒰+Sports+Hyuna+꒱;꒰+Alien+Stage+Hyuna+꒱;꒰+"+Haha+!+"+꒱;꒰+Luhyu+Shipper+꒱)](https://git.io/typing-svg)
 
 <p align="center">
   <img src="https://i.ibb.co/dw44JB2L/Untitled113-20251201171420.png" alt="Image" width="800">
