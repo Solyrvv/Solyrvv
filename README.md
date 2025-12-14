@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/DrunkParty">꒰DrunkParty꒱</a>
+  <a href="https://github.com/luhyuna">꒰Luhyu꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
