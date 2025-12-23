@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/Xxbpxdkj/Untitled113-20251218131631.png" alt="Image" width="800">
+  <img src="https://i.ibb.co/VWYV5W1N/20251223-101812.jpg" alt="Image" width="800">
 </p>
 
 <p align="center">
