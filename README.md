@@ -13,9 +13,8 @@
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
-  <a href="https://">꒰Rentry꒱</a>
+  <a href="https://rentry.co/47hmt37m">꒰Rentry꒱</a>
 </p>
-
 
 <p align="center">
   <img src="https://i.ibb.co/YTWDjhQb/Untitled113-20251223170313.png" alt="Image" width="800">
