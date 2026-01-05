@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font+Elite&size=50&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+"+Headshot+baby+!+"+꒱;꒰+Thank+you+for+the+500++followers+!+꒱;꒰+Hyuna+Noona+꒱;꒰+"+this+is+my+revenge+"+꒱;꒰+Alien+Stage+Hyuna+꒱;꒰+"+Haha+!+"+꒱;꒰+Luhyu+Shipper+꒱)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font+Elite&size=50&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1000&lines=꒰+"+Headshot+baby+!+"+꒱;꒰+Thanku+for+the+600++followers+!+꒱;꒰+Hyuna+Noona+꒱;꒰+"+this+is+my+revenge+"+꒱;꒰+Alien+Stage+Hyuna+꒱;꒰+"+Haha+!+"+꒱;꒰+Luhyu+Shipper+꒱)](https://git.io/typing-svg)
 
 <p align="center">
   <a href="https://alienstage.fandom.com/wiki/Our_Diva">꒰ Our Diva - Hyuna ꒱</a>
