@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/hyuna-noona">꒰Hyuna-Rentry꒱</a>
+  <a href="https://rentry.co/Sakiix">꒰Sakii-Rentry꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
 &nbsp;&nbsp;&nbsp;
