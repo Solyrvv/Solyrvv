@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Comfortaa&size=40&duration=4000&pause=1600&color=98FF98&center=true&vCenter=true&letterSpacing=1&width=1200&lines=꒰+IS+A+POISON+꒱;꒰+THANKS+FOR+700+FOLLOWERS+!+꒱;꒰+KAN+MAOMAO+꒱;꒰+MEDICINEEE+!+꒱;꒰+TAD+MAOMAO+꒱;꒰+LORD+JINSHI+!+꒱;꒰+JINMAO+CEO+꒱)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Comfortaa&size=40&duration=4000&pause=1600&color=98FF98&center=true&vCenter=true&letterSpacing=1&width=1200&lines=꒰+THIS+IS+POISON+꒱;꒰+THANKS+FOR+700+FOLLOWERS+!+꒱;꒰+KAN+MAOMAO+꒱;꒰+MEDICINEEE+!+꒱;꒰+TAD+MAOMAO+꒱;꒰+LORD+JINSHI+!+꒱;꒰+JINMAO+CEO+꒱)](https://git.io/typing-svg)
 
 <p align="center">
   <a href="https://kusuriya.fandom.com/wiki/Light_Novel_Volume_01">꒰ Light Novel - TAD ꒱</a>
@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/Sakiix">꒰Sakii-Rentry꒱</a>
+  <a href="https://rentry.co/Maomaov">꒰Maomao-Rentry꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
 &nbsp;&nbsp;&nbsp;
