@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=28&duration=4000&pause=1600&color=FDF6A9&center=true&vCenter=true&letterSpacing=1&width=1000&lines=꒰+HOW+DID+YOU+DO+THAT+EMU+?!+꒱;꒰+THANKS+FOR+700+FOLLOWERS+!+꒱;꒰+SAKI+TENMA+꒱;꒰+WHO+DOENS%27T+LIKE+SNOW%3F!+꒱;꒰+PJSK+SAKI+꒱;꒰+ICHIKA+!+꒱;꒰+ICHISAKI+SHIPPER+꒱)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Comfortaa&size=40&duration=4000&pause=1600&color=FDF6A9&center=true&vCenter=true&letterSpacing=1&width=1200&lines=꒰+IS+A+POISON+꒱;꒰+THANKS+FOR+700+FOLLOWERS+!+꒱;꒰+KAN+MAOMAK+꒱;꒰+MEDICINEEE+!+꒱;꒰+TAD+MAOMAK+꒱;꒰+LORD+JINSHI+!+꒱;꒰+JINMAO+CEO+꒱)](https://git.io/typing-svg)
 
 <p align="center">
   <a href="https://projectsekai.fandom.com/wiki/After_Practice">꒰ After Practice - PJSK ꒱</a>
