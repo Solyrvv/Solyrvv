@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/Maomaov">꒰Maomao-Rentry꒱</a>
+  <a href="https://rentry.co/ssleeepps">꒰Astro-Rentry꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
 &nbsp;&nbsp;&nbsp;
