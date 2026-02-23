@@ -11,7 +11,7 @@
 <p align="center">
   <a href="https://rentry.co/ssleeepps">꒰Astro-Rentry꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
-  <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
+  <a href="https://sleepvvv.straw.page">꒰Strawpage꒱</a>
 
 ![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***Hi! I'm Solyra / Soly 🩵***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
 
