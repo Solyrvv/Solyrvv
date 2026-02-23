@@ -12,4 +12,6 @@
   <a href="https://rentry.co/ssleeepps">꒰Astro-Rentry꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://Solyrvv.straw.page">꒰Strawpage꒱</a>
+
+![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)
 &nbsp;&nbsp;&nbsp;
