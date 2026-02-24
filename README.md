@@ -15,8 +15,6 @@
 <p align="center">
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://atabook.org/solyra">꒰DreamAtaBook꒱</a>
-  <a 
-
 
 ![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***Hi! I'm Solyra / Soly 🩵***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
 
