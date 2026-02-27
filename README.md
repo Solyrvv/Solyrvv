@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/hvdtSxWJ/Untitled8-20260218172816.png" alt="Image" width="800">
+  <img src="https://i.ibb.co/rKHqKfcV/Tumblr-l-2725088433169580.png" alt="Image" width="800">
 </p>
 
 <p align="center">
