@@ -9,6 +9,10 @@
 </p>
 
 <p align="center">
+  <img src="https://i.ibb.co/8g0kwwFX/Untitled20-20260227204454.png" alt="Image" width="800">
+</p>
+
+<p align="center">
   <a href="https://rentry.co/ssleeepps">꒰Astro-Rentry꒱</a>
 &nbsp;&nbsp;&nbsp; ⌗
   <a href="https://sleepvvv.straw.page">꒰Strawpage꒱</a>
