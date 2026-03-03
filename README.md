@@ -81,10 +81,4 @@ Danganropa , FPE ( Fundamental Paper Education ) , MLP !
 ![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • Copying my Astro skin(s) or my other skin(s) , I'm starting to be aware of people in my surroundings and use your own hands to make your **OWN** Style pls 🙁 ( targeted )
 
 &nbsp;&nbsp;&nbsp;
-![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***"Hurtful Word(s)"***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
-
-&nbsp;&nbsp;&nbsp;
-![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • Saying hurtful words and saying that is a joke , IS NOT A JOKE-mind your own words towards other people and obviously **Me** , is annoying that THEY think that your are a weak person because of that??
-
-&nbsp;&nbsp;&nbsp;
-![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)**You can ask me more questions in my straw ! I would love to answer your questions about me ! bye my starlings mwah mwah 🩵**![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
+![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)**This is All ! You can ask me more questions in my straw ! I would love to answer your questions about me ! bye my starlings mwah mwah 🩵**![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
