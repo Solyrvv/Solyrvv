@@ -84,7 +84,7 @@ Danganropa , FPE ( Fundamental Paper Education ) , MLP !
 ![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***Words***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
 
 &nbsp;&nbsp;&nbsp;
-![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • Just because something is said as a joke doesn’t mean it can’t hurt someone’s feelings . Words still have an impact , even if the person saying them thinks they’re being funny
+![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • Just because something is said and pretending it as a 'joke' doesn’t mean it you can’t hurt someone’s feelings 😮‍💨 . Words still have an impact , even if the person saying them thinks they’re being funny or having with their humor
 
 &nbsp;&nbsp;&nbsp;
 ![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)**This is All ! You can ask me more questions in my straw ! I would love to answer your questions about me ! bye my starlings mwah mwah 🩵**![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
