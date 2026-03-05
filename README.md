@@ -47,7 +47,7 @@
 ![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***"What are your Pronouns?"***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
 
 &nbsp;&nbsp;&nbsp;
-![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • My Pronounciation are any **except** " It " prons !
+![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • My Pronounciation are ***any*** **except** " It/Its " prons !
 
 &nbsp;&nbsp;&nbsp;
 ![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***"What are your Fandoms/Liking?"***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
