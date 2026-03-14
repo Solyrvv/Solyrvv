@@ -81,7 +81,7 @@ Danganropa , FPE ( Fundamental Paper Education ) , MLP !
 ![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • Copying my Astro skin(s) or my other skin(s) and presenting my work as your own is plagiarism and shows a lack of originality and respect for creative effort , pls do not...🙁
 
 &nbsp;&nbsp;&nbsp;
-![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***Words***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
+![Image](https://github.com/user-attachments/assets/6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f)***Harsh Jokes***![Image](https://github.com/user-attachments/assets/627e89d0-6473-4814-905c-175fa329e8b8)
 
 &nbsp;&nbsp;&nbsp;
 ![Image](https://github.com/user-attachments/assets/8692c569-e81f-43a3-a5a8-fdbbb6471013) • Just because something is said and pretending it as a 'joke' doesn’t mean it you can’t hurt someone’s feelings 😮‍💨 . Words still have an impact , even if the person saying them thinks they’re being funny or having with their humor
