@@ -1,1 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&size=80&duration=4000&pause=1600&color=F3CBD3&center=true&vCenter=true&letterSpacing=2&width=1800&height=150&lines=꒰+oh+.+.+.+꒱;꒰+Thanks+for+the+800+followers+!+.+.+.+꒱;꒰+Bassie+Bloomington+꒱;꒰+.+.+.+Need+Something+?+꒱;꒰+Dandys+World+Bassie+꒱;꒰+"+oh..about+that+.+"+꒱)](https://git.io/typing-svg)
+
+<p align="center">
+  <img src="https://i.ibb.co/3954dTgM/Tumblr-l-605736694367488.gif" alt="Image" width="800">
+</p>
+
+work in progress pls be patient
