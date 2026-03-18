@@ -4,8 +4,6 @@
   <a href="https://dandys-world-robloxhorror.fandom.com/wiki/Bassie">꒰ Dandys World - Bassie ꒱</a>
 </p>
 
-<p align="center">
-  <img src="https://i.ibb.co/3954dTgM/Tumblr-l-605736694367488.gif" alt="Image" width="800">
-</p>
+![cool GIF](https://i.imgur.com/S4QeuHS.gif)
 
 work in progress pls be patient
