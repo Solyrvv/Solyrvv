@@ -22,7 +22,7 @@
 
 ![GIF](https://i.imgur.com/Lq350AW.gif) • FRIEND ME !! love to make new friends and new person to talk with me! I get verry lonely 😔 !! ( if you interact me first )
 
-![GIF](https://i.imgur.com/2pcEihu.gif)***"What are your Pronouns?"***![Image]
+![GIF](https://i.imgur.com/2pcEihu.gif)***"What are your Pronouns?"***
 
 ![GIF](https://i.imgur.com/Lq350AW.gif) • My Pronounciation are ***any*** ! **Except** for " It/Its " prons !
 
