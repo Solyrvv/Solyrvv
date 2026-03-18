@@ -1,7 +1,3 @@
-<p align="center">
-  <img src="https://i.ibb.co/5qQyVxq/Tumblr-l-614760161301795.png" alt="Image" width="800">
-</p>
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&size=80&duration=4000&pause=1600&color=F3CBD3&center=true&vCenter=true&letterSpacing=2&width=1800&height=150&lines=꒰+oh+.+.+.+꒱;꒰+Thanks+for+the+800+followers+!+.+.+.+꒱;꒰+Bassie+Bloomington+꒱;꒰+.+.+.+Need+Something+?+꒱;꒰+Dandys+World+Bassie+꒱;꒰+"+oh..about+that+.+"+꒱;꒰+"+just+doing+my+part+.+.+.+"+꒱)](https://git.io/typing-svg)
 
 <p align="center">
