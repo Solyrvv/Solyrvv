@@ -45,7 +45,7 @@ Danganropa , FPE ( Fundamental Paper Education ) , MLP !
 
 ![GIF](https://i.imgur.com/Lq350AW.gif) • Copying my Github style w/out perms , I KNOW IS A NON-ISSUE! But when they present it as their own is plagiarism and lack of creativity .
 
-![GIF](https://i.imgur.com/Lq350AW.gif) • Copying my Astro skin(s) or my other skin(s) and presenting my work as your own is plagiarism and shows a lack of originality and respect for creative effort , pls do not...🙁
+![GIF](https://i.imgur.com/Lq350AW.gif) • Copying my skin(s) and presenting my work as your own is plagiarism and shows a lack of originality and respect for creative effort , pls do not...🙁
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***Harsh Jokes***
 
