@@ -4,7 +4,7 @@
   <a href="https://dandys-world-robloxhorror.fandom.com/wiki/Bassie">꒰ Dandys World - Bassie ꒱</a>
 </p>
 
-![GIF](https://i.imgur.com/vBdpVli.gif)
+![GIF](https://i.imgur.com/ydP501r.gif)
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***Hi! I'm Solyra / Soly 🩷***!
 
