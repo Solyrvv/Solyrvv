@@ -28,8 +28,7 @@
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***"What are your Fandoms/Liking?"***
 
-![GIF](https://i.imgur.com/Lq350AW.gif) • Poppy Playtime , Beastars , Vocaloid / PJSK , Dandys World , Smilling Critters , Alien Stage , The Apothecary Diaries , MIAFOLT? ,
-Danganropa , FPE ( Fundamental Paper Education ) , MLP !
+![GIF](https://i.imgur.com/Lq350AW.gif) • Poppy Playtime ( PPT ) , Beastars , Vocaloid / PJSK , Dandys World ( DW ) , Smilling Critters ( SC )─Along with NC , Alien Stage ( Alsnt ) , The Apothecary Diaries ( Tad ) , Danganropa , Fundamental Paper Education ( FPE ) , Cosmuc Princess Kaguya! ( CPK ) , and SolarBalls ( SB )
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***"What Are your Hobbies/Talents?"***
 
@@ -49,6 +48,4 @@ Danganropa , FPE ( Fundamental Paper Education ) , MLP !
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***Harsh Jokes***
 
-![GIF](https://i.imgur.com/Lq350AW.gif) • Just because something is said and pretending it as a 'joke' doesn’t mean it you can’t hurt someone’s feelings 😮‍💨 . Words still have an impact , even if the person saying them thinks they’re being funny or having with their humor
-
-![GIF](https://i.imgur.com/2pcEihu.gif)**This is All ! You can ask me more questions in my straw ! I would love to answer your questions about me ! bye my Tupilss mwah mwah 🩷**
+![GIF](https://i.imgur.com/Lq350AW.gif) • Just because something is said and pretending it as a 'joke' doesn’t mean it you can’t hurt someone’s feelings gng 😮‍💨 . Words still have an impact , even if the person saying them thinks they’re being funny or having with their ass humor
