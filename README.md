@@ -28,7 +28,7 @@
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***"What are your Fandoms/Liking?"***
 
-![GIF](https://i.imgur.com/Lq350AW.gif) • Poppy Playtime ( PPT ) , Beastars , Vocaloid / PJSK , Dandys World ( DW ) , Smilling Critters ( SC )─Along with NC , Alien Stage ( Alsnt ) , The Apothecary Diaries ( Tad ) , Danganropa , Fundamental Paper Education ( FPE ) , Cosmuc Princess Kaguya! ( CPK ) , and SolarBalls ( SB )
+![GIF](https://i.imgur.com/Lq350AW.gif) • Poppy Playtime ( PPT ) , Beastars , Vocaloid / PJSK , Dandys World ( DW ) , Smilling Critters ( SC )─Along with NC , Alien Stage ( Alsnt ) , The Apothecary Diaries ( Tad ) , Danganropa , Fundamental Paper Education ( FPE ) , Cosmic Princess Kaguya! ( CPK ) , and SolarBalls ( SB )
 
 ![GIF](https://i.imgur.com/2pcEihu.gif)***"What Are your Hobbies/Talents?"***
 
