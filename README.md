@@ -1,1 +1,1 @@
-![GIF](https://i.imgur.com/EqtU517.gif)
+rmk! but I'm too lazy to rmk,, fax
