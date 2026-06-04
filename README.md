@@ -11,5 +11,7 @@
 Solyra / Taffy . DnCopy 彡 ❞ ꒱
 
 <p align="center">
-  <img src="https://i.ibb.co/J1hqBGC/b26b2b31bc457144db11bb880afb6704.jpg" alt="Image" width="800">
+  <img src="https://i.ibb.co/Xrbj204W/Untitled8-20260604200915.png" alt="Image" width="800">
 </p>
+
+![GIF](https://i.imgur.com/ImVFyih.gif)
