@@ -6,9 +6,8 @@
 
 <p align="center">
 ꒰ ᯓ ❞ Teen / Bi - Capri ﻌ
-
 <p align="center">
-Solyra / Taffy . DnCopy 彡 ❞ ꒱
+Jan 18 | Solyra / Taffy . DnCopy 彡 ❞ ꒱
 
 <p align="center">
   <img src="https://i.ibb.co/Xrbj204W/Untitled8-20260604200915.png" alt="Image" width="800">
