@@ -4,3 +4,8 @@
 
 ![GIF](https://i.imgur.com/ImVFyih.gif)
 
+<p align="center">
+꒰ ᯓ ❞ Teen / Bi - Capri ﻌ
+
+<p align="center">
+Solyra / Taffy . DnCopy 彡 ❞ ꒱
