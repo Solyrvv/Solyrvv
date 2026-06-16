@@ -12,7 +12,7 @@
 
 <p align="center">
 ꒰ ᯓ ❞ 🕷 Teen / Pan - Capri ﻌ <br>
-Jan 18 | Solyra / Taffy . DnCopy 🕸 彡 ❞ ꒱
+Jan 18 | Solyra / Taffy . DnCopy my Skins 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
@@ -26,7 +26,8 @@ Jan 18 | Solyra / Taffy . DnCopy 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?cache=1&font=Fredoka+One&size=75&duration=4000&pause=1600&color=FFFFFF&center=true&vCenter=true&width=1800&height=150&lines=All+In;Road+to+1k+!;Solyra+/+Taffy;🕷🕸;Pan+/+She+%7C+Him;Z%C2%B1ombie+St%C2%B1ge;My+wife+%E2%86%91%E2%86%91%E2%86%91" />
+꒰ ᯓ ❞ 🕷 Z๑mbie St๑ge / Hyuna F/O ﻌ <br>
+Dni Doubles | @Kandie . DnCopy my Github🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
