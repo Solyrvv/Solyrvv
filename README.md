@@ -27,7 +27,7 @@ Jan 18 | Solyra / Taffy . DnCopy my Skins 🕸 彡 ❞ ꒱
 
 <p align="center">
 ꒰ ᯓ ❞ 🕷 Z๑mbie St๑ge / Hyuna F/O ﻌ <br>
-Dni Doubles | @Kandie . DnCopy my Github🕸 彡 ❞ ꒱
+Dni Doubles | @Kandie . My Wife ↑↑↑ 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
