@@ -9,9 +9,9 @@
 ![GIF](https://i.imgur.com/u2T5VWZ.gif)
 
 <p align="center">
-꒰ ᯓ ❞ Teen / Bi - Capri ﻌ
+꒰ ᯓ ❞ 🕷 Teen / Bi - Capri ﻌ
 <p align="center">
-Jan 18 | Solyra / Taffy . DnCopy 彡 ❞ ꒱
+Jan 18 | Solyra / Taffy . DnCopy 🕸 彡 ❞ ꒱
 
 <a href="https://ibb.co/gZb1YGmd"><img src="https://i.ibb.co/qYLG6z7C/Untitled8-20260616064253.png" alt="Untitled8 20260616064253" border="0"></a>
 
