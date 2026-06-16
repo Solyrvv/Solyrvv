@@ -13,6 +13,7 @@
 <p align="center">
 Jan 18 | Solyra / Taffy . DnCopy 🕸 彡 ❞ ꒱
 
+<p align="center">
 <sub>![](https://komarev.com/ghpvc/?username=Solyrvv&base=20000&label=StalkingSpiders&color=000000&style=flat)</sub>
 
 <a href="https://ibb.co/gZb1YGmd"><img src="https://i.ibb.co/qYLG6z7C/Untitled8-20260616064253.png" alt="Untitled8 20260616064253" border="0"></a>
