@@ -19,11 +19,7 @@ Jan 18 | Solyra / Taffy . ꒥꒷‧₊⁎⁺˳ꕀ˖✧˖°. ♡ 🕸 彡 ❞ ꒱
   <img src="https://komarev.com/ghpvc/?username=Solyrvv&base=20000&label=StalkingSpiders&color=000000&style=flat" />
 </p>
 
-<p align="center">
-  <a href="https://ibb.co/gZb1YGmd">
-    <img src="https://i.ibb.co/qYLG6z7C/Untitled8-20260616064253.png" alt="image" width="800">
-  </a>
-</p>
+<img src="https://github.com/Solyrvv.png" width="800">
 
 <p align="center">
 ꒰ ᯓ ❞ 🕷 Z๑mbie St๑ge / ꫝꪗꪊꪀꪖ F/O ﻌ <br>
