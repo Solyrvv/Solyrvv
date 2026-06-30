@@ -12,7 +12,7 @@
 
 <p align="center">
 ꒰ ᯓ ❞ 🕷 Teen / Pan - Capri ﻌ <br>
-Jan 18 | Solyra / Taffy . DnCopy my Skins 🕸 彡 ❞ ꒱
+Jan 18 | Solyra / Taffy . ꒥꒷‧₊⁎⁺˳ꕀ˖✧˖°. ♡ 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
@@ -26,8 +26,8 @@ Jan 18 | Solyra / Taffy . DnCopy my Skins 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
-꒰ ᯓ ❞ 🕷 Z๑mbie St๑ge / Hyuna F/O ﻌ <br>
-Dni Doubles | @Kandie . My Wife ↑↑↑ 🕸 彡 ❞ ꒱
+꒰ ᯓ ❞ 🕷 Z๑mbie St๑ge / ꫝꪗꪊꪀꪖ F/O ﻌ <br>
+Dni Doubles | @title-town . My Wife ↑↑↑ 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
