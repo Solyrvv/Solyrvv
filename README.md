@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/u2T5VWZ.gif" alt="GIF">
+  <img src="https://i.imgur.com/yiPkfzv.gif" alt="GIF">
 </p>
 
 <p align="center">
@@ -31,7 +31,7 @@ Dni Doubles | @Kandie . My Wife ↑↑↑ 🕸 彡 ❞ ꒱
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/u2T5VWZ.gif" alt="GIF">
+  <img src="https://i.imgur.com/yiPkfzv.gif" alt="GIF">
 </p>
 
 <p align="center">
